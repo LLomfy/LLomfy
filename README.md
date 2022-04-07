@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @LLomfy
+- 👀 I’m interested in coding but I am a beginner
+- I would like to learn about coding website
